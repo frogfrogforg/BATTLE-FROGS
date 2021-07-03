@@ -2,7 +2,7 @@
 
 not sure what to do for thesis... I wish I had a team to work with... ribbit ribbit...
 
-some of my ideas:
+my ideas so far:
 
 Frog Physics for Life: https://docs.google.com/presentation/d/1ba1e1jtFvAGZj1laWhxDWiBP51YZnPblIimPfrJMiVM
 
