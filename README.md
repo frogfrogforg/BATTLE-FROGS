@@ -1,1 +1,3 @@
-# frog-galore
+# Frog Galore (working title)
+
+not sure what to do for thesis... I wish I had a team to work with... ribbit ribbit...
