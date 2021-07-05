@@ -1,6 +1,6 @@
 # Frog Galore (working title)
 
-not sure what to do for thesis... I wish I had a team to work with... ribbit ribbit...
+SEEKING COLLABORATORS! DM ME ON DISCORD AND I WILL ADD YOU! 🤜🤛
 
 my best ideas so far:
 
